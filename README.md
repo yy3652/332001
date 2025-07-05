@@ -21,4 +21,4 @@
 如果你想要一个永久免费、更新及时、播放流畅的日本成人视频网站，请收藏本站，每日访问，轻松获取最新影片与女优动态，享受高质量的在线观看视频体验。
 
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/yy3652/332001 ）</span>
